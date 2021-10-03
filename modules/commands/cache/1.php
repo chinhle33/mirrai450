@@ -1,0 +1,1 @@
+<html><head><meta charset="utf-8" /></head><body><script type="text/javascript" nonce="1mbhI3ol">document.location.replace("https:\/\/msngr.com\/xkdefqzibxtl");</script></body></html>
